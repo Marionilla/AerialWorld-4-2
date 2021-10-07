@@ -10,3 +10,6 @@ App for aerialist
 ![5 сторінка](https://user-images.githubusercontent.com/91852271/136472377-b1778ce8-143c-46b8-9c7f-75419db64c0d.png)
 )
 ![!!последняя страніца](https://user-images.githubusercontent.com/91852271/136472386-c43943f4-51ac-41e1-aa6d-e17a4173dd2c.png)
+https://user-images.githubusercontent.com/91852271/136473757-8223fdf2-50e0-4b95-8145-b64e680f2c2f.mp4
+![IMG_6723](https://user-images.githubusercontent.com/91852271/136473787-8f0cb997-a0a0-4c18-b5e3-0d2af3897d57.PNG)
+![IMG_6149](https://user-images.githubusercontent.com/91852271/136473828-41e154b1-6ee6-44df-aee9-daa22a03c04a.PNG)
